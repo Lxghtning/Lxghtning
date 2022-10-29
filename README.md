@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Lxghtning, a 14 year old student and developer/coder/programmer
+- 👋 Hi, I’m @Lxghtning, a 15 year old student and developer/coder/programmer
 - 👀 I’m interested in working on new Unique Projects
 - 🌱 I’m currently learning/trying to master most of the popular languages out there
-- 📫 You can contact me on Discord:- Lxghtning~#7915
+- 📫 You can contact me on Discord:- Lxghtning~#0388
 
 
 
